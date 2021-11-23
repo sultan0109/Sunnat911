@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sunnat911
+- 👀 I’m interested in computer programming 
+- 🌱 I’m currently learning  more need for a programmer
+- 💞️ I’m looking to collaborate on my goal by with those who have global goals
+- 📫 How to reach me ...by telegram @S_Kodirov
