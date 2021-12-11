@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sunnat911
+- 👋 Hi, I’m Sultan
 - 👀 I’m interested in computer programming 
 - 🌱 I’m currently learning  more need for a programmer
 - 💞️ I’m looking to collaborate on my goal by with those who have global goals
